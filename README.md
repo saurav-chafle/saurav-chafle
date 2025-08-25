@@ -7,7 +7,7 @@ Email Me 👉 ✉️ **chaflesaurav228@gmail.com** For Collaboration/Project or 
 - 🌱 **I’m currently learning:** MERN Stack
 - 💬 **Ask me about:** Collaboration, Tech Support
 - 📫 **How to reach me:** chaflesaurav228@gmail.com
-- 😄 **Pronouns:** Gaurav 
+- 😄 **Pronouns:** Saurav 
 - ⚡ **Fun fact:** I Love Tech and Tech Love Me
 
 # 💫 About Me:
